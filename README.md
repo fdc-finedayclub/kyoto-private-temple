@@ -1,0 +1,1 @@
+# kyoto-private-temple
